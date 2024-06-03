@@ -14,5 +14,6 @@ ultilizo esse espaço e compartilhamento do projetos desenvolvidos
 
 bi1789455@gmail.com
 
-![](https://tenor.com/pt-BR/view/the-powerpuff-girls-gif-21151504)
+![image](https://github.com/Bioliveira033B/bibi3B/assets/170653750/edcfb616-7387-403b-85f0-c969b188617d)
+
 
